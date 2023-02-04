@@ -1,0 +1,1 @@
+# Matris_Satir_Sutun_Elemanlar_Toplami_Carpimi
